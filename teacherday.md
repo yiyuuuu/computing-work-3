@@ -5,10 +5,10 @@ konnichiwa dajia
 
 no no dont judge me here this is my no no boundary :D 
 
-_HA_**HA**HAHA be p0sItiVe like me and not like ****@seven7_days_a_week** :D and be clean like me and not like **@isabellecheahhh** :S 
+_HA**HA**_HAHA be p0sItiVe like me and not like ****@seven7_days_a_week** :D and be clean like me and not like **@isabellecheahhh** :S 
 
 be chill and be _happy_
 
-My friends are **@seven7_days_a_week** n **@isabellecheahhh**
+**@seven7_days_a_week** n **@isabellecheahhh**
 
 okay thankew _-Bye bye-_
