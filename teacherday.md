@@ -3,9 +3,9 @@
 
 konnichiwa dajia 
 
-no judging here!!
+no no dont judge me here this is my no no boundary :D 
 
-appreciate my workkkk
+_HA_**HA**HAHA be p0sItiVe like me and not like ****@seven7_days_a_week** :D and be clean like me and not like **@isabellecheahhh** :S 
 
 be chill and be _happy_
 
